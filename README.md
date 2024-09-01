@@ -36,4 +36,4 @@ For more details, check out my YouTube video and Medium blog:
 
 - https://www.youtube.com/watch?v=6fYC0Ri76hg
 
-- 
+- https://medium.com/p/cbcee156d982/edit
